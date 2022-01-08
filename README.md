@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @basicallyImjustgonnanottakethevaccine
+- 👀 I’m interested in not taking any experimental vaccine
+- 🌱 I’m currently learning vaccine side effects
+- 💞️ I’m looking to collaborate on stopping fearing the flu
+- 📫 How to reach me. You can't, my power level is too high for the pleb.
